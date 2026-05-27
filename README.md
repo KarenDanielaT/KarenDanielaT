@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="AQUI_PEGA_EL_LINK"/>
+  <img src="ChatGPT Image 26 may 2026, 20_56_26.png"/>
 </p>
 <h1 align="center">✨ Karen Daniela ✨</h1>
 
