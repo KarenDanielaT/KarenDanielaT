@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="AQUI_PEGA_EL_LINK"/>
+</p>
 <h1 align="center">✨ Karen Daniela ✨</h1>
 
 <h3 align="center">
