@@ -1,7 +1,6 @@
 <p align="center">
   <img src="ChatGPT Image 26 may 2026, 20_56_26.png"/>
 </p>
-<h1 align="center">✨ Karen Daniela ✨</h1>
 
 <h3 align="center">
 Ingeniera en sistemas en proceso 💻 <br>
